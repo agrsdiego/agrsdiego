@@ -1,7 +1,7 @@
 ## Bem vindos ao meu perfil! 👋💙
 
 - Me chamo Diego Aguiar e estudo na E.E. Vereador Euclides Miranda;
-- Gosto de treinar; Planejo ser Arquiteto/Educador Físico;
+- Gosto de estudar; Planejo ser Arquiteto!;
 - Estou usando o Github para minha organização pessoal.
 
 ## Pode entrar em contato comigo em 📮 :
